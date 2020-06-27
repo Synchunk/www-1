@@ -13,54 +13,7 @@
 建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dffff">git.io/dffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j66">x.co/j66</a><br>  
 </details>
 <br>
-<h1><p><strong>新闻热点 海外报道</strong></p></h1>
-<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102879987.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/海军前司令吴胜利突遭审计          >-009fcc?logoWidth=1" title="海军前司令吴胜利突遭审计  " alt="海军前司令吴胜利突遭审计  "></a></p>
-<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102879986.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/海军前司令吴胜利突遭审计 多名将领自杀或落马>-009fcc?logoWidth=1" title="海军前司令吴胜利突遭审计 多名将领自杀或落马  " alt="海军前司令吴胜利突遭审计 多名将领自杀或落马  "></a></p>
-<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102879981.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/叶钊颖再发“灭共推文”：打倒共产党！    >-009fcc?logoWidth=1" title="叶钊颖再发“灭共推文”：打倒共产党！  " alt="叶钊颖再发“灭共推文”：打倒共产党！  "></a></p>
-<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102879921.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港奏“国歌”尴尬一幕 全场高喊“光复香港”>-009fcc?logoWidth=1" title="香港奏“国歌”尴尬一幕 全场高喊“光复香港”  " alt="香港奏“国歌”尴尬一幕 全场高喊“光复香港”  "></a></p>
-<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102879816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/解密：江泽民在三峡埋“定时炸弹”毛泽东秘书曾>-009fcc?logoWidth=1" title="解密：江泽民在三峡埋“定时炸弹”毛泽东秘书曾坚决反对  " alt="解密：江泽民在三峡埋“定时炸弹”毛泽东秘书曾坚决反对  "></a></p>
-<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102879783.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江泽民强推三峡工程 黄万里12项预言应验11>-009fcc?logoWidth=1" title="江泽民强推三峡工程 黄万里12项预言应验11项  " alt="江泽民强推三峡工程 黄万里12项预言应验11项  "></a></p>
-<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102880376.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情蔓延11区 印建全球最大临时医院  >-009fcc?logoWidth=1" title="北京疫情蔓延11区 印建全球最大临时医院  " alt="北京疫情蔓延11区 印建全球最大临时医院  "></a></p>
-<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102880362.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/否定纽约双重标准 法官推翻宗教聚会禁令   >-009fcc?logoWidth=1" title="否定纽约双重标准 法官推翻宗教聚会禁令  " alt="否定纽约双重标准 法官推翻宗教聚会禁令  "></a></p>
-<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102880329.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中进入全方位竞争 学者指出关键拐点    >-009fcc?logoWidth=1" title="美中进入全方位竞争 学者指出关键拐点  " alt="美中进入全方位竞争 学者指出关键拐点  "></a></p>
-<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102880301.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普批民主党治下放纵暴力 一些城市犹如“地狱>-009fcc?logoWidth=1" title="川普批民主党治下放纵暴力 一些城市犹如“地狱”  " alt="川普批民主党治下放纵暴力 一些城市犹如“地狱”  "></a></p>
-<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102880303.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件爆中共大规模使用健康码真实意图   >-009fcc?logoWidth=1" title="内部文件爆中共大规模使用健康码真实意图  " alt="内部文件爆中共大规模使用健康码真实意图  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/pxdgi295/djy/blob/master/gb/20/6/26/n12214505.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反制香港国安法 美宣布限制中共官员签证   >-009fcc?logoWidth=1" title="反制香港国安法 美宣布限制中共官员签证  " alt="反制香港国安法 美宣布限制中共官员签证  "></a></p>
-<p><a href="https://github.com/pxdgi295/djy/blob/master/gb/20/6/26/n12212964.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王岐山汪洋与美方交手 铩羽而归       >-009fcc?logoWidth=1" title="王岐山汪洋与美方交手 铩羽而归  " alt="王岐山汪洋与美方交手 铩羽而归  "></a></p>
-<p><a href="https://github.com/pxdgi295/djy/blob/master/gb/20/6/26/n12214603.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/海外华人：回不了家 击穿我们心理底线    >-009fcc?logoWidth=1" title="海外华人：回不了家 击穿我们心理底线  " alt="海外华人：回不了家 击穿我们心理底线  "></a></p>
-<p><a href="https://github.com/pxdgi295/djy/blob/master/gb/20/6/25/n12212799.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华为遭多国5G抛弃 美再重击        >-009fcc?logoWidth=1" title="华为遭多国5G抛弃 美再重击  " alt="华为遭多国5G抛弃 美再重击  "></a></p>
-<p><a href="https://github.com/pxdgi295/djy/blob/master/gb/20/6/25/n12212795.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/涉煽动威胁昆大学生 澳警方调查中共总领事徐杰>-009fcc?logoWidth=1" title="涉煽动威胁昆大学生 澳警方调查中共总领事徐杰  " alt="涉煽动威胁昆大学生 澳警方调查中共总领事徐杰  "></a></p>
-<p><a href="https://github.com/pxdgi295/djy/blob/master/gb/20/6/26/n12212915.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共外宣5手法 特务血泪醒世录       >-009fcc?logoWidth=1" title="中共外宣5手法 特务血泪醒世录  " alt="中共外宣5手法 特务血泪醒世录  "></a></p>
-<p><a href="https://github.com/pxdgi295/djy/blob/master/gb/20/6/26/n12213368.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高天韵：美连出重拳打击中共 推动抗共大潮  >-009fcc?logoWidth=1" title="高天韵：美连出重拳打击中共 推动抗共大潮  " alt="高天韵：美连出重拳打击中共 推动抗共大潮  "></a></p>
-<p><a href="https://github.com/pxdgi295/djy/blob/master/gb/20/5/24/n12133812.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京教师：小时候知道的很多事都是假的    >-009fcc?logoWidth=1" title="北京教师：小时候知道的很多事都是假的  " alt="北京教师：小时候知道的很多事都是假的  "></a></p>
-<p><a href="https://github.com/pxdgi295/djy/blob/master/gb/20/6/26/n12214557.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李锐黄万里儿女回顾父辈反对三峡大坝经历   >-009fcc?logoWidth=1" title="李锐黄万里儿女回顾父辈反对三峡大坝经历  " alt="李锐黄万里儿女回顾父辈反对三峡大坝经历  "></a></p>
-<p><a href="https://github.com/pxdgi295/djy/blob/master/gb/20/6/26/n12214964.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球退党中心一项倡议 帮人远离瘟疫     >-009fcc?logoWidth=1" title="全球退党中心一项倡议 帮人远离瘟疫  " alt="全球退党中心一项倡议 帮人远离瘟疫  "></a></p>
-<p><a href="https://github.com/pxdgi295/djy/blob/master/gb/20/6/26/n12214879.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/普拉多3.5L大陆停产 丰田高端车型全离华 >-009fcc?logoWidth=1" title="普拉多3.5L大陆停产 丰田高端车型全离华  " alt="普拉多3.5L大陆停产 丰田高端车型全离华  "></a></p>
-<p><a href="https://github.com/pxdgi295/djy/blob/master/gb/20/6/26/n12214374.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/30万燕郊人像蝼蚁爬向北京 文章被删    >-009fcc?logoWidth=1" title="30万燕郊人像蝼蚁爬向北京 文章被删  " alt="30万燕郊人像蝼蚁爬向北京 文章被删  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102879937.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/制裁中共高官更进一步 美参院全票通过新法案 >-009fcc?logoWidth=1" title="制裁中共高官更进一步 美参院全票通过新法案  " alt="制裁中共高官更进一步 美参院全票通过新法案  "></a></p>
-<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102879852.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/推背图喊话香港 江水漫过武汉堤防      >-009fcc?logoWidth=1" title="推背图喊话香港 江水漫过武汉堤防  " alt="推背图喊话香港 江水漫过武汉堤防  "></a></p>
-<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102879888.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/爱女5月离世 陈方安生今宣布退出政坛    >-009fcc?logoWidth=1" title="爱女5月离世 陈方安生今宣布退出政坛  " alt="爱女5月离世 陈方安生今宣布退出政坛  "></a></p>
-<p><a href="https://github.com/pxdgi295/djy/blob/master/gb/20/6/26/n12215064.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆洪灾 台商被令限期捐钱 不堪重负回台  >-009fcc?logoWidth=1" title="大陆洪灾 台商被令限期捐钱 不堪重负回台  " alt="大陆洪灾 台商被令限期捐钱 不堪重负回台  "></a></p>
-<p><a href="https://github.com/pxdgi295/djy/blob/master/gb/20/6/26/n12214313.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张宝成妻：中共快点倒 我丈夫才能早点出来  >-009fcc?logoWidth=1" title="张宝成妻：中共快点倒 我丈夫才能早点出来  " alt="张宝成妻：中共快点倒 我丈夫才能早点出来  "></a></p>
-<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102879764.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩正情妇私生子曝光 还有一情人被陈良宇夺走 >-009fcc?logoWidth=1" title="韩正情妇私生子曝光 还有一情人被陈良宇夺走  " alt="韩正情妇私生子曝光 还有一情人被陈良宇夺走  "></a></p>
-<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102879860.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/红二代爆料中印冲突/胡锡进叛变 “环时”不归>-009fcc?logoWidth=1" title="红二代爆料中印冲突/胡锡进叛变 “环时”不归党管  " alt="红二代爆料中印冲突/胡锡进叛变 “环时”不归党管  "></a></p>
-<p><a href="https://github.com/pxdgi295/djy/blob/master/gb/20/6/26/n12214829.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/聚焦高考顶替案 上海交大招生黑幕被重提   >-009fcc?logoWidth=1" title="聚焦高考顶替案 上海交大招生黑幕被重提  " alt="聚焦高考顶替案 上海交大招生黑幕被重提  "></a></p>
-<p><a href="https://github.com/pxdgi295/djy/blob/master/gb/20/6/26/n12214209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/端午北京多区强拆 未成年人被骗做“黑保安” >-009fcc?logoWidth=1" title="端午北京多区强拆 未成年人被骗做“黑保安”  " alt="端午北京多区强拆 未成年人被骗做“黑保安”  "></a></p>
-<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102879872.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国首次公开指中共领袖为暴君 《香港问责法》>-009fcc?logoWidth=1" title="美国首次公开指中共领袖为暴君 《香港问责法》急出台  " alt="美国首次公开指中共领袖为暴君 《香港问责法》急出台  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
-
-<br><p><a target="_blank" href="https://github.com/pxdgi295/djy/blob/master/gb/nf1351518.md#1">大纪元动态首页</a></p>
-<p><a target="_blank" href="https://github.com/pxdgi295/ntdtv/blob/master/gb/prog204.md#1">新唐人动态首页</a></p>
-</details>
-</details>
-</details>
-</details>
-</details>
-
-<img src="https://raw.githubusercontent.com/pxdgi295/www/master/t/lh600.jpg"><br>
 <a name="8" id="8" target="_blank"></a> <span id="8"></span>
 <h1><p><strong>免费翻墙软件下载</strong></p></h1>
 绿色、安全、免费，帮您破除网络封禁，一键上外网。<br>
